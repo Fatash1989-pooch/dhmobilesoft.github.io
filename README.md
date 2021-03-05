@@ -1,2 +1,2 @@
 # AppLink
-* [RokkrMovies](https://leedegree.github.io/rokkr/)
+* [RokkrMovies](https://chidiep.github.io/rokkr/)
