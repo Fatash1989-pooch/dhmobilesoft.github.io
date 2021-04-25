@@ -24,7 +24,7 @@ We love hearing your voice. Let's contact us and stay connected!
 
 Get in touch with me for support via: [Messenger](https://m.me/416305462459391)
 
-Email: appfeedback118@yandex.com
+Email: diepchinguyen408@gmail.com
 
 Address: 
 75 S Union St, Unit 204
