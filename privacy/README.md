@@ -22,9 +22,7 @@ If there are any questions regarding this privacy policy you may contact us usin
 
 We love hearing your voice. Let's contact us and stay connected!
 
-Get in touch with me for support via: [Messenger](https://m.me/416305462459391)
-
-Email: diepchinguyen408@gmail.com
+Email: instancealk@gmail.com
 
 Address: 
 75 S Union St, Unit 204
